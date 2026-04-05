@@ -1,0 +1,2 @@
+# MetalGearSolidDelta.APP
+Guia trofeos
